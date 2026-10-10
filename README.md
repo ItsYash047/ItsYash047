@@ -67,7 +67,7 @@ Business Intelligence · Retail & Profitability Analytics · Pharmaceutical Anal
 
 - **GitHub:** [@ItsYash047](https://github.com/ItsYash047)
 - **Location:** Pune, Maharashtra, India
-- **LinkedIn:** Link coming soon
+- **LinkedIn:** linkedin.com/in/yash govindwar-b242a5194 
 
 ---
 
